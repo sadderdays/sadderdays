@@ -1,7 +1,7 @@
 <p align="center"><img width="300" src="https://pbs.twimg.com/media/GpR03QBXsAAsDZW?format=jpg&name=large" />
 </p>
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<p align="center">[ata](https://wolfcorpse.atabook.org/) [interests](https://spacehey.com/wolfcorpse) [kuro](https://kuro.rip/pervert)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<p align="center">[ata](https://wolfcorpse.atabook.org/) [kuro](https://kuro.rip/pervert)
 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<p align="center">![](https://komarev.com/ghpvc/?username=sadderdays&label=hi&color=e8e9eb)
