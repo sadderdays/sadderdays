@@ -1,4 +1,4 @@
-<p align="center"><img width="300" src="https://pbs.twimg.com/media/GpR03QBXsAAsDZW?format=jpg&name=large" />
+<p align="center"><img width="400" src="https://pbs.twimg.com/media/GpR03QBXsAAsDZW?format=jpg&name=large" />
 </p>
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<p align="center">[ata](https://wolfcorpse.atabook.org/) [kuro](https://kuro.rip/pervert)
